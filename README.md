@@ -1,6 +1,6 @@
 # WAFELS
 
-![image](file:///C:/Users/ginos/Downloads/zelf-wafels-maken-1a.webp)
+![image](zelf-wafels-maken-1a.webp)
 
 ## BENODIGHEDEN
 
