@@ -5,7 +5,7 @@
 ## BENODIGHEDEN
 
 INGREDIËNTEN
-*380 gram bloem
+* 380 gram bloem
 * 1 el bakpoeder
 * snuf zout
 * 2 el fijne kristalsuiker
